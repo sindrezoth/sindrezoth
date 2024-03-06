@@ -9,8 +9,8 @@ alex.sindre.gm@gmail.com
 
 [Instagram](https://instagram.com/sindrezoth)
 
-[X](twitter.com/sindrezoth) 
+[X](https;//twitter.com/sindrezoth) 
 
-[Telegram](t.me/sindrezoth)
+[Telegram](https://t.me/sindrezoth)
 
 [Discord](https://discordapp.com/users/425580696602673153)
