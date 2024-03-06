@@ -9,7 +9,7 @@ alex.sindre.gm@gmail.com
 
 [Instagram](https://instagram.com/sindrezoth)
 
-[X](https;//twitter.com/sindrezoth) 
+[X](https://twitter.com/sindrezoth) 
 
 [Telegram](https://t.me/sindrezoth)
 
