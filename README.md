@@ -7,7 +7,7 @@ U can found me via:
 
 alex.sindre.gm@gmail.com
 
-[Instagram](instagram.com/sindrezoth)
+[Instagram](https://instagram.com/sindrezoth)
 
 [X](twitter.com/sindrezoth) 
 
