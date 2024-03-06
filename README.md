@@ -3,7 +3,7 @@ your attention.
 
 I'll appreciate all comments and other feedback.
 
-U can found me via:
+U can reach me via:
 
 alex.sindre.gm@gmail.com
 
