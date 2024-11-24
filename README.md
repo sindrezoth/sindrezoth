@@ -5,11 +5,7 @@ I'll appreciate all comments and other feedback.
 
 U can reach me via:
 
-alex.sindre.gm@gmail.com
-
-[Instagram](https://instagram.com/sindrezoth)
-
-[X](https://twitter.com/sindrezoth) 
+[Mail]alex.sindre.gm@gmail.com
 
 [Telegram](https://t.me/sindrezoth)
 
